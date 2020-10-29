@@ -1,0 +1,1 @@
+# strukturavaltas
