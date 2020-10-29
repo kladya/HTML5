@@ -1,1 +1,1 @@
-# strukturavaltas
+# Hétközi feladatok
